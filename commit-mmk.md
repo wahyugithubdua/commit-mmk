@@ -1,1 +1,1 @@
-I Love Barrick
+I Love Amore
