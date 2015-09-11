@@ -1,1 +1,1 @@
-I Love Stanford
+I Love Alge
