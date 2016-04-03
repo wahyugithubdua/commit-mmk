@@ -1,1 +1,1 @@
-I Love Auther
+I Love Pamala
