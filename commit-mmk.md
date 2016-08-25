@@ -1,1 +1,1 @@
-I Love Dale
+I Love Scot
