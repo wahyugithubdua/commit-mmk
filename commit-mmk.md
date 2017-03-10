@@ -1,1 +1,1 @@
-I Love Bartow
+I Love Wendy
