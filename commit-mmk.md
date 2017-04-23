@@ -1,1 +1,1 @@
-I Love Adamik
+I Love Kandice
