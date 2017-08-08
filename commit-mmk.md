@@ -1,1 +1,1 @@
-I Love Loreen
+I Love Adamaitis
