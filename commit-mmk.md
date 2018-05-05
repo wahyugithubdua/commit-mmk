@@ -1,1 +1,1 @@
-I Love Yoshiko
+I Love Bartholemew
