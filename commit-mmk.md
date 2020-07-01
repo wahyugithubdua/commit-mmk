@@ -1,1 +1,1 @@
-I Love Adamek
+I Love Synthia
